@@ -17,3 +17,6 @@ Based on the research , recommend below actions to reverse the population trend.
 With the above 3, there will be more money flow to the state which can help in reducing tax burden to the residents and companies.
 
 With the infrastructure and technological advancements, Chicago can become a hot spot . Chicago must persuade businesses big and small to set root in job-starved neighborhoods on the South and West sides, where the loss of African-American population endangers the health and future of those communities.
+
+![image](https://user-images.githubusercontent.com/66095841/146471606-e29437b3-a4e1-4c9a-ab48-3a0ef21ef535.png)     ![image](https://user-images.githubusercontent.com/66095841/146471624-e6baeb1b-1ef6-49d9-9a36-8bc7edf1c482.png)
+
